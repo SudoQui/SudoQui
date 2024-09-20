@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SudoQui
+- 👀 I’m interested in Ai/ML aswell as traffic light logic
+- 🌱 I’m currently learning Markov AI models, Javascript and AMQPs
+- 💞️ I’m looking to collaborate on nearal net models
+- 📫 How to reach me Mustafa02siddiqui (Ig) Mustafa Siddiqui (Linkedin)
+- 😄 Pronouns: (Him) im that guy
